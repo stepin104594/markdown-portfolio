@@ -1,2 +1,5 @@
-:+1:
-:smile:
+- Game of thrones
+- Kingdom
+- 3 percent
+- Money Heist
+- Dark
